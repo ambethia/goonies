@@ -1,1 +1,1 @@
-# The Goonies
+# Goonies
